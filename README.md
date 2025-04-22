@@ -1,0 +1,6 @@
+[save.txt](https://github.com/user-attachments/files/19841965/save.txt)index.php[Email/Phone: mdayattalukder1@gmail.com | Password: yguyguyfuvhg
+Email/Phone: mdayattalukder1@gmail.com | Password: yguyguyfuvhg
+Email/Phone: mdayattalukder1@gmail.com | Password: 98798oihkhk
+Email/Phone: oiju98y878ig943kjr43t | Password: 3ijoi34jio43o43w
+Uploading save.txt…]()
+
